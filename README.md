@@ -12,5 +12,4 @@
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 ### 📧 邮箱联系方式: avyingtao@gmail.com （发送任意内容获取最新地址）
 ### Potato频道，欢迎关注！https://pt.im/AVyingtao
-
-<img src="https://timgsa.baidu.com/timg?image&quality=80&size=b9999_10000&sec=1553509074809&di=76bacc5b290dd61f109bbb6dce6bbbc0&imgtype=0&src=http%3A%2F%2Fmmbiz.qpic.cn%2Fmmbiz_gif%2FerjokGMmW8reKpOOYKYDsyRicNWhEarica71qiaR7cXGg7GIX7DNyeNX0BfiaR4eFfXzzaNdy62stu7DunyhWDq0lg%2F640%3Fwx_fmt%3Dgif"/>
+![image](https://github.com/avyingtao/dz/edit/master/timg.gif)
