@@ -1,5 +1,5 @@
 # ⭐️⭐️樱桃视频⭐️⭐️ 最新地址发布 
-
+![image](https://github.com/avyingtao/dz/raw/master/timg.gif)
 ## 导 航 永 久 域 名 HttpS://yingtao.link
 ## ⭐️ 👉 地址一 ：HttpS://www.yt525.com
 ## ⭐️ 👉 地址二 ：HttpS://www.5yingtao.com
@@ -12,4 +12,3 @@
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 ### 📧 邮箱联系方式: avyingtao@gmail.com （发送任意内容获取最新地址）
 ### Potato频道，欢迎关注！https://pt.im/AVyingtao
-![image](https://github.com/avyingtao/dz/edit/master/timg.gif)
