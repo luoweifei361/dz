@@ -1,6 +1,6 @@
-# ⭐️⭐️樱桃视频⭐️⭐️ 最新地址发布 
+# ⭐️樱桃视频⭐️ 最新地址发布 
 ![image](https://github.com/avyingtao/dz/raw/master/timg.gif)
-## ‼️‼️长按复制到浏览器里面访问网址‼️‼️
+## ‼️长按复制到浏览器里面访问网址‼️
 ## 导 航 永 久 域 名 HttpS://yingtao.link
 ## ⭐️ 👉 地址一 ：HttpS://www.yt525.com
 ## ⭐️ 👉 地址二 ：HttpS://www.5yingtao.com
