@@ -2,8 +2,8 @@
 ![image](https://github.com/avyingtao/dz/raw/master/timg.gif)
 ## ‼️长按复制到浏览器里面访问网址‼️
 ## ⭐️ 👉 地址一 ：httpS://www.cherry666.com
-## ⭐️ 👉 地址一 ：httpS://www.yt525.com
-## ⭐️ 👉 地址二 ：httpS://www.yingtao7.com
+## ⭐️ 👉 地址二 ：httpS://www.yt525.com
+## ⭐️ 👉 地址三 ：httpS://www.yingtao7.com
 ## ⭐️ 👉 樱桃APP下载页 ：HttpS://yingtao2.com
 ## ⭐️ 👉 备用导航 ：httpS://yingtao.ink
 
