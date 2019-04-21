@@ -11,4 +11,3 @@
 ## ‼️請使用Ctrl+D進行收藏本站!|电脑/Ipad/手机在线播放‼️
 ### 📧 邮箱联系方式: avyingtao@gmail.com （发送任意内容获取最新地址）
 ### 欢迎加入我们的QQ群! 984073877
-### Potato频道，欢迎关注！https://pt.im/AVyingtao
