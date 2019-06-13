@@ -1,5 +1,5 @@
-# ⭐️樱桃成人视频⭐️ 最新地址发布 
-![image](https://github.com/avyingtao/dz/raw/master/timg.gif)
+
+
 ## ‼️长按复制到浏览器里面访问网址‼️
 ## ⭐️ 👉 地址一 ：https://www.cherry666.com
 ## ⭐️ 👉 地址二 ：https://www.cherry520.com
